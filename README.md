@@ -1,8 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/609ecf80e201b08f0de481c3a9c163b0/16d6c5d4e0777052-c0/s640x960/92a8c64c8f24f2ab7b69c24447ff738c640c00ea.pnj">
-
-<p align="center">
-<img src="https://64.media.tumblr.com/7dbb80e2260fdb83014cf30508dfc720/91b50a3b608f2da0-82/s640x960/e41339b68f5f0c5dce6ab2cb45af58be7be96de4.gifv">
+<img src="https://64.media.tumblr.com/ccfdd57384c0b98eaec32bcfb0113063/33e7865278662ce9-e5/s540x810/f3adf0b3d654b7dc8bbb46795e5aaa9c7657fc5f.gifv">
 
 <p align="center">
 ◟ ᛝ ˙　vince　 ⸝⸝　21　<img src="https://64.media.tumblr.com/685d21a8fc3b20b2c88b7d1c2f85f425/952542f4524ddce2-71/s75x75_c1/c8387f789e98c750d68fea8a18c45706df20f6a1.gifv">　 ་།† ‿ 𝜗℘
