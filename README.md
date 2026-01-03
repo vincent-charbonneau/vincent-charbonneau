@@ -10,10 +10,8 @@
 <img src="https://64.media.tumblr.com/3fbdabfe152c9a3b684784185ec2eefb/8b2d3df7cd5bc8e3-47/s75x75_c1/eba93afc28c48d934e8c3d15f42cc82754e01fbc.gifv">⠀⠀♂️　ꕀ　<img src="https://64.media.tumblr.com/8c7669308cd43b69b96bd72c7a176cbf/a60c4a1fea7aca07-42/s75x75_c1/d5fbcb3c8c87fd8e1151a6db7fe0ab65120c592f.gifv">　demiboy　<img src="https://64.media.tumblr.com/4bfc9c6e23e8d7e82e532e45606b4f21/a60c4a1fea7aca07-2a/s75x75_c1/a714f3a73f12f707452c87fe7da2da83f0340bdf.gifv"> 𓂃　₎₎
 <p align="center">
 𓎠𓎠　˘　he　 𓈒　they　　 ིܳ   𐂯    ֢ 
-
 <p align="center">
 <img src="https://64.media.tumblr.com/282d835439ca844177104e9452e4bb4e/8c274af760a44a4a-84/s100x200/5ebbd68d9ab31724a06a0667cc3395cd1a7e9b7c.gifv">
-
 <p align="center">
 <img src="https://64.media.tumblr.com/51bd6f7ece792d002d4913dc7d38711c/a90f3889b906455d-a8/s640x960/5000c93fe9c6777cb4802fe3c49f243124745383.pnj">
 
